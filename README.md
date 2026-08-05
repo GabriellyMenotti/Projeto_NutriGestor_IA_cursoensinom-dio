@@ -1,0 +1,1 @@
+# Projeto_NutriGestor_IA_cursoensinom-dio
